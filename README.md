@@ -16,4 +16,4 @@
 
 ### Rafael Haui
 
-### Linkedin: https://www.linkedin.com/school/rafaelhaui/
+### Linkedin: https://www.linkedin.com/rafaelhaui/
